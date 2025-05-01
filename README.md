@@ -1,5 +1,5 @@
 ![Trusted](https://img.shields.io/badge/Trusted-100%25_Safe-green) ![Downloads](https://img.shields.io/badge/Downloads-50K%2B-blue) ![Latest](https://img.shields.io/badge/Version-v2.5.0-orange) ![Windows](https://img.shields.io/badge/OS-Windows_10%2B-lightgrey)
-# V Rising Hack 2025 Undetectable 🚨
+# V-Rising Hack 2025 Undetectable 🚨
 ![Preview](https://i.ytimg.com/vi/SmQwLgptCDY/maxresdefault.jpg)
 **Welcome, you bloodthirsty motherfucker, to the ultimate V Rising domination tool! This ain't no weak-ass mod—this is the 2025 Undetectable tool, built to make you the goddamn king of Vardoran. No bans, no bullshit, just pure, unfiltered chaos. Ready to suck the life outta your enemies and build a castle that’d make Dracula jealous? Let’s roll! 🧛‍♂️**
 
